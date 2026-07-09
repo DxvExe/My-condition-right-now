@@ -196,4 +196,42 @@ GitHub is probably the one app my parents never open, so this ended up becoming 
 
 If you're reading this, congratulations—you found the hidden lore. GG. 🎉
 
-⭐ Thanks for visiting my profile! 
+🎮 Games
+
+Believe it or not, games are a big part of my life too.
+
+🔴 Valorant
+
+I love playing Valorant, but I have one rule:
+
+I only play when I'm not relaxed.
+
+Why? Because if you've ever played on Mumbai servers, you probably already know. 😂
+
+There's always that one teammate who makes you question your life choices.
+
+So for me, Valorant isn't a game to relax with—it's a game I play when I'm already mentally prepared for chaos.
+
+---
+
+⛏️ Minecraft
+
+Minecraft is the complete opposite.
+
+It's my comfort game.
+
+I usually play for about an hour a day whenever I get some free time.
+
+One thing I'm especially proud of is my 8-year-old Hardcore world, which I've kept alive through countless updates and adventures.
+
+Instead of competing, I enjoy building, exploring, collecting memories, and just relaxing.
+
+Sometimes, after hours of debugging code, Minecraft is exactly the break I need.
+
+---
+
+Whether I'm coding, studying, or gaming, I enjoy learning, creating, and challenging myself.
+
+(Okay... maybe not when my Valorant teammates are yelling at me. 😭)
+
+⭐ Thxt for stopping on my profile and reading all my nonsense 😭 
